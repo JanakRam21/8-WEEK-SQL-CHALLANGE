@@ -1,4 +1,4 @@
-Image
+
 
 View the case study here
 
